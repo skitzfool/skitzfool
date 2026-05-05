@@ -1,9 +1,7 @@
-<p align="center">
-    <img width="70%" src="https://file.garden/aPuyzU9PkXWKuMIt/3770101vnwxgds2hs%20(1).png">
+<p align="left">
+    <img width="100%" src="https://file.garden/aPuyzU9PkXWKuMIt/01282-ezgif.com-optimize.gif">
 </p>
-<p align="right" width="100%">
-    <img width="33%" src="https://file.garden/aPuyzU9PkXWKuMIt/759005fxf1rfsjdt%20(1).gif">
-</p>
+
 <p align="center" width="100%">
     <img width="40%" src="https://file.garden/aPuyzU9PkXWKuMIt/1812132uihx5dwn542-ezgif.com-resize.gif">
 </p>
@@ -24,7 +22,7 @@
 
 
 
-**-16 dont interact.**
+**-16 dont interact.** (if im on the 18+ server, MINORS dni.)
 
 i may be insanely awkward, my bad.
 
@@ -52,4 +50,6 @@ consang or you think abuse can be consensual,
 
 <p align="center">
     <img width="70%" src="https://file.garden/aPuyzU9PkXWKuMIt/3770101vnwxgds2hs%20(1).png">
+</p>
+<p align="center"> https://kirbopher.straw.page/ . https://kirbopher.atabook.org/
 </p>
