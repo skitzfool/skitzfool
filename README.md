@@ -1,7 +1,7 @@
 <p align="center">
     <img width="70%" src="https://file.garden/aPuyzU9PkXWKuMIt/3770101vnwxgds2hs%20(1).png">
 </p>
-<p align="center" width="100%">
+<p align="right" width="100%">
     <img width="33%" src="https://file.garden/aPuyzU9PkXWKuMIt/759005fxf1rfsjdt%20(1).gif">
 </p>
 <p align="center" width="100%">
