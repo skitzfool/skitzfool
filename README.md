@@ -26,6 +26,8 @@
 
 i may be insanely awkward, and find it hard to continue conversations, my bad.
 
+i never ignore anyone intentionally, so if i dont respond im likely afk.
+
 im nice i promise
 
 dont involve me in any drama
