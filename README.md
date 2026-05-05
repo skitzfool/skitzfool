@@ -24,7 +24,7 @@
 
 **-16 dont interact.** (if im on the 18+ server, MINORS dni.)
 
-i may be insanely awkward, my bad.
+i may be insanely awkward, and find it hard to continue conversations, my bad.
 
 im nice i promise
 
@@ -35,6 +35,8 @@ please interact with me PLEASE
 DONT copy me or post me on pinterest, but inspo is fine.
 
 ive been playing ponytown since 2018... heh.. not to brag..
+
+most things i say are ironic unless we are having a serious conversation.
 
 <img src="https://file.garden/aPuyzU9PkXWKuMIt/4e17ded6cc8d77c0b2bea642453633677f8a02c2da39a3ee5e6b4b0d3255bfef95601890afd80709da39a3ee5e6b4b0d3255bfef95601890afd80709569a557a0c9db07b0bcf5ef3df149a38%20(2).gif">
 
