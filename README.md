@@ -29,6 +29,7 @@
 <p align="center"> ⛔：busy focusing on something other than ponytown, you are still free to cuddle near me and such but i probably wont talk.
 </p>
 
+**IF IT IS BEFORE 12:00 PM MST i am probably still waking up, please keep this in mind.**
 
 <p align="center" width="100%">
     <img width="30%" src="https://file.garden/aPuyzU9PkXWKuMIt/467987f431u9v1sr%20(1).gif">
